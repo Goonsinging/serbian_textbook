@@ -1,2 +1,2 @@
 # serbian_textbook
-Translation Serbian Textbook to English
+Translate Serbian Textbook to English
