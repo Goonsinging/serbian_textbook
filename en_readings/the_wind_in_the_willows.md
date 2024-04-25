@@ -4,3 +4,11 @@ The Mole had been working every hard all the morning, spring-cleaning his little
 
 "Hold up!" said an elderly rabbit at the gap. "Sixpence for the privilege of passing by the private road!" He was bowled over in an instant by the impatient and contemptuous Mole, who trotted along the side of the hedge chaffing the other rabbits as they peeped hurriedly from their holes to see what the row was about. "Onion-sauce! Onion-sause!" he remarked jeeringly, and was gone before they could think of a thoroughly satisfactory reply. Then they all started grumbling at each other. "How stupid you are! Why didn't you tell him--" "Well, why didn't yousay--" "You might have reminded him--" and so on, in the usual way; but, of course, it was then much too late, as is always the case.
 
+It all seemed too good to be true. Hither and thither throught the meadows he rambled busily, along the hedgerows, across the copses, finding everywhre birds building, flowers budding, leaves thrusting--everything happy, and progressive, and occupied. And instead of having an uneasy conscience pricking him and whispering "whitewash!" he somehow could only feel how jolly it was to be the only idle dog among all these busy citizens. After all, the best part of a holiday is perhaps not so much to be resting yourself, as to see all the other fellows busy working.
+
+
+
+
+
+
+
